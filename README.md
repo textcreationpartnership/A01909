@@ -35,11 +35,101 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Eglogs epytaphes, and sonettes. Newly written by Barnabe Googe: 1563. 15. MarcheGooge, Barnabe, 1540
+
+1. ¶ Alexander Neuyll.
+B. Googe.
+1. ¶To the ryght worſhipfull M. William Louelace, Eſquier, Reader of Grayes Inne: (Barnabe Googe) wyſſheth health.
+Daphnes. Amintas.
+1. ¶ L. Blundeſton to the Reader.
+
+1. ¶The Preface of L. Blundeſton.
+
 #####Body#####
-Eglogs epytaphes, and sonettes. Newly written by Barnabe Googe: 1563. 15. MarcheGooge, Barnabe, 1540
+
+1. Egloga prima.
+
+1. Egloga ſecunda.
+
+1. Egloga tertia.
+
+1. Egloga quarta.
+
+1. Egloga quinta.
+
+1. Egloga ſexta.
+
+1. Egloga ſeptima.
+
+1. Egloga octaua.
+
+1. ¶An Epytaphe of the Lorde Sheffeldes death.
+
+1. ¶An Epytaphe of M. Shelley ſlayne at Muſſelbroughe.
+
+1. ¶An Epytaphe of Maiſter Thomas Phayre.
+
+1. ¶An Epytaphe of the Death of Nicolas Grimaold.
+
+1. ¶To Mayſter Alexander Nowell.
+
+1. ¶To Doctor Bale.
+
+1. ¶To M. Edwarde Cobham.
+
+1. ¶Of Edwardes of the Chappell.
+
+1. To L. Blundeſton.
+
+1. The Aunſwere of L. Blundeſton to the ſame.
+
+1. ¶To Alexander Neuell.
+
+1. Alexander Neuells Anſwere to the ſame.
+
+1. ¶To M. Henrye Cobham of the moſt bleſſed ſtate of Lyfe.
+
+1. ¶To Alexander Neuell of the bleſſed Sate of him that feeles not the force of Cupids flames.
+
+1. ¶Alexander Neuells Awnſwere to the ſame.
+
+1. ¶To Mayſtreſſe A.
+
+1. ¶To George Holmeden of a ronnynge Heade.
+
+1. ¶ The Harte abſent.
+
+1. ¶ To Alexander Neuell.
+
+1. ¶The Aunſwere of A. Neuell to the ſame.
+
+1. ¶To Mayſtreſſe D.
+
+1. ¶ Out of an olde Poet.
+
+1. ¶Oculi augent dolorem. Out of ſyght, out of mynd.
+
+1. ¶Of the vnfortunate choyſe of his Valentyne.
+
+1. ¶The vncertayntie of Lyfe.
+
+1. ¶Of Money.
+
+1. ¶Goyng towardes Spayne.
+
+1. ¶At Bonyuall in Fraunce.
+
+1. ¶ Commynge home warde out of Spayne.
+
+1. ¶To L. Blundeſton of Ingratitude.
+
+1. ¶The Aunſwere of L. Blundeſton to the ſame.
+¶To the Tune of Appelles.THe ruſhyng Ryuers that do runThe valeys ſweet adourned newThat leans their
+1. ¶Cupido Conquered.
+
 #####Back#####
-Eglogs epytaphes, and sonettes. Newly written by Barnabe Googe: 1563. 15. MarcheGooge, Barnabe, 1540
+¶Imprynted at London in S. Brydes Churchyarde, by Thomas〈◊〉, for Raufe Nevvbery.And are to be ſold a
+1. ¶Faultes eſcaped in the Pryntynge.
+
 **Types of content**
 
   * There are 1819 **verse** lines!
